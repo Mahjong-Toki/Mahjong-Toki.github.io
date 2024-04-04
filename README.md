@@ -1,1 +1,0 @@
-# Mahjong-Toki.github.io
